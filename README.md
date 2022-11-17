@@ -7,10 +7,10 @@ Link; https://compartir.pixton.com/q64mt2g
 ![image](https://user-images.githubusercontent.com/52756461/202368646-1d276afe-feb8-4087-bcb0-8a80f8a1095a.png)
 
 
-![image](https://user-images.githubusercontent.com/52756461/202368657-10652eaa-4132-4574-a008-831ffc525329.png)
+![image](https://user-images.githubusercontent.com/52756461/202368849-02bd4305-3d9b-4918-9c5f-be670a52a4f3.png)
 
 
-![image](https://user-images.githubusercontent.com/52756461/202368666-ac0f4f19-58be-4864-9e21-e5d410301bcb.png)
+![image](https://user-images.githubusercontent.com/52756461/202368880-12236d82-1932-4cac-8912-59cd067bde23.png)
 
 
 ![image](https://user-images.githubusercontent.com/52756461/202368678-025be153-c6d3-4278-b9a3-d82606117dbe.png)
